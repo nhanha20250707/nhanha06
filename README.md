@@ -15,4 +15,4 @@
 无论是经典老片还是最新更新，全部满足你的观看需求。
 平台每日更新，确保你不错过任何精彩内容。立刻加入，享受流畅、高清的日本AV世界！
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/nhanha20250707/nhanha06 ）</span>
